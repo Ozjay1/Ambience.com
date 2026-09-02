@@ -1,2 +1,2 @@
 # Ambience.com
-kdniscjihkoijsdiovh
+Sprint 01 — the first playable minute
